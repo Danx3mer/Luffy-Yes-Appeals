@@ -1,2 +1,2 @@
-# Luffy-Yes-Appeals
-The appeals for my friend's discord server
+# Dank-appeals
+The appeals for me and my friends' discord server
